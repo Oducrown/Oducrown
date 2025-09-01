@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Oducrown
+- 👋 Hi, I’m ODUNOWO ADEBISI TIMOTHY @Oducrown
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning Blockchain Technology
 - 💞️ I’m looking to collaborate on building a very solid Blockchain network
